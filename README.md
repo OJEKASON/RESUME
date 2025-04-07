@@ -31,7 +31,6 @@ To work in a challenging environment that will offer me the opportunity of a mut
 <li>Willingness to sometimes work unsociable hours </li>
 <li>A logical mind </li>
 <li>Enthusiasm for continual learning</li>
-
 <br>
 **WORK EXPERIENCE**
 <br>
